@@ -1,0 +1,1 @@
+# Insightcore-2025-Consumer-Electronics-Sales-Performance
